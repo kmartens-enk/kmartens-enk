@@ -1,3 +1,2 @@
-Kick Martens
-ENK Software
+Kick Martens - ENK Software
 
